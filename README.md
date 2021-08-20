@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Martinezkiaraa
 - 👀 I’m interested in doing something I like 
-- 🌱 I’m currently learning how to code 
+- 🌱 I’m currently learning how  code 
 - 💞️ I’m looking to collaborate on the entire world
 - 📫 How to reach me on mi IG, @martinezkiaraa and on mi mail like martinezkiara275@gmail.com
 
